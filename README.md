@@ -134,7 +134,7 @@
 
 * GitHub: https://github.com/RO919-ARCH
 * LinkedIn: [https://linkedin.com/in/RO919-ARCH](https://www.linkedin.com/in/faizan-tariq-115ab3295/)
-* Email: [your@email.com](faizankhanqwert7@gmail.com)
+* Email: [faizankhanqwert7@gmail.com](faizankhanqwert7@gmail.com)
 
 ---
 
